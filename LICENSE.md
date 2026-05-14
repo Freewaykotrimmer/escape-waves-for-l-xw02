@@ -1,4 +1,4 @@
-#  
+#  escape waves for lucky blocks Script best offers the most advanced escape waves for lucky blocks Script, with silent aim and auto-upgrade. Perfect
 
 
 
